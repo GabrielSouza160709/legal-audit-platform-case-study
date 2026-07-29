@@ -181,4 +181,4 @@ O código-fonte permanece privado, e dados ou documentos reais não são disponi
 
 ## Contato
 
-Gabriel Souza
+Gabriel Souza — [LinkedIn](https://www.linkedin.com/in/gabriel-souza-0071103a4/)
